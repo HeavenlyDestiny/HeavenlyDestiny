@@ -4,7 +4,7 @@
 
 <p align="center"> <mark>Do not copy my skin or upload it anywhere, ask for inspiration. Whisper to interact.</mark>
 
-### *<p align=center>* Pucci ⭒ Adult ⭒ He/Him
+### *<p align=center>* 𝙿𝚞𝚌𝚌𝚒 ⭒ 𝙰𝚍𝚞𝚕𝚝 ⭒ 𝙷𝚎/𝙷𝚒𝚖
 <p align="center"> I will not be sharing personal information here.
 
 <p align=center> I mostly interact with my wife, Arabella and my friends. If I do not respond to your interactions, then I am most likely AFK or Off-tab. Use whisper to prevent me from missing your mesages. You are free to sit with me if I am alone, but do not expect me to speak. 
