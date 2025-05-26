@@ -9,6 +9,6 @@
 
 <p align=center> I mostly interact with my wife, Arabella and my friends. If I do not respond to your interactions, then I am most likely AFK or Off-tab. Use whisper to prevent me from missing your mesages. You are free to sit with me if I am alone, but do not expect me to speak. 
 
-<p align=center> Please do not flirt with me, even in roleplay or as a joke, if you are not already a friend or my wife. 
+<p align=center> Please do not flirt with me, even in roleplay or as a joke, if you are not my wife or a friend. 
 <p align=center> Dio x Pucci shippers DNI. Due to bad experiences, Dio skins please interact with caution. It's not difficult to be respectful.
 </p>
