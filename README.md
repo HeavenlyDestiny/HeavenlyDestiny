@@ -2,7 +2,7 @@
 
 ---
 
-<p align="center"> <mark>Do not copy my skin or upload it anywhere, ask for inspiration. Whisper to interact.</mark>
+<p align="center"> <mark>Do not copy my skins or upload them anywhere, ask for inspiration. Whisper to interact.</mark>
 
 ### *<p align=center>* 𝙿𝚞𝚌𝚌𝚒 ⭒ 𝙰𝚍𝚞𝚕𝚝 ⭒ 𝙷𝚎/𝙷𝚒𝚖
 <p align="center"> I will not be sharing personal information here.
